@@ -3,7 +3,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=a-a-k-a-s-h&label=Profile%20views&color=0e75b6&style=flat" alt="a-a-k-a-s-h" /> </p>
 
-- 📫 How to reach me **star.lynx001@gmail.com**
+- 📫 How to reach me **aksky1701@gmail.com**
 
 - 📄 Know about my experiences [https://docs.google.com/document/d/1JhxMDfPKugdBrA6CDUo0FSkF5DCpQVn6twtZdlhaZdw/edit?usp=sharing](https://docs.google.com/document/d/1JhxMDfPKugdBrA6CDUo0FSkF5DCpQVn6twtZdlhaZdw/edit?usp=sharing)
 
