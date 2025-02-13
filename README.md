@@ -5,8 +5,6 @@
 
 - 📫 How to reach me **aksky1701@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1JhxMDfPKugdBrA6CDUo0FSkF5DCpQVn6twtZdlhaZdw/edit?usp=sharing](https://docs.google.com/document/d/1JhxMDfPKugdBrA6CDUo0FSkF5DCpQVn6twtZdlhaZdw/edit?usp=sharing)
-
 - ⚡ Fun fact **I am a Music Lover and a fan of Cricket**
 
 <h3 align="left">Connect with me:</h3>
